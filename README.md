@@ -1,1 +1,0 @@
-# grupo_8_International_Shoes
